@@ -18,9 +18,9 @@ Theme We Using ====
 Feel free to ask me any query in telegram:   @adnanhabibweb
 
 
-# Business inquiry:  csehabib@outlook.com [ Business only ] 
-# Skype:  live:.cid.1fe4ef9d7a6749ce  [ Freelance only ]
-# Freelancer Profile: https://www.freelancer.com/u/csehabiburr183
+ Business inquiry:  csehabib@outlook.com [ Business only ] 
+ Skype:  live:.cid.1fe4ef9d7a6749ce  [ Freelance only ]
+ Freelancer Profile: https://www.freelancer.com/u/csehabiburr183
 
 ---------------------------- --------
 Inspired By Wordpress ====
